@@ -6,7 +6,7 @@
 Tips and strategies for mastering Python.
 Practical approaches to task-based learning in programming.
 How to effectively prepare for Python programming interviews.
-My experience in freelancing and training over 1000+ students..<br>- 📫 How to reach me: ... vasukumarpalani@gmail.com
+My experience in freelancing and training over 1000+ students..<br>- 📫 How to reach me: ... ghanakhyathikamlekari@gmail.com
 
 
 
